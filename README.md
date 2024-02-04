@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @KuceraMar
 - 👀 I’m interested in everything. 
 - 🌱 I’m continuously learning.
-- 💞️ I’m looking to you. 
-- 📫 How to reach me: find me
-- 😄 Pronouns: as you wish
+- 💞️ I’m looking for you. 
+- 📫 How to reach me: FB, Discord
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: haha
 
 <!---
