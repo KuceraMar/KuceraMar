@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything. 
 - 🌱 I’m continuously learning.
 - 💞️ I’m looking to you. 
-- 📫 How to reach me: martin@div.cz
+- 📫 How to reach me: find me
 - 😄 Pronouns: as you wish
 - ⚡ Fun fact: haha
 
